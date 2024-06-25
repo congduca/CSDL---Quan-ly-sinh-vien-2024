@@ -1,2 +1,2 @@
-# CSDL---Qu-n-l-sinh-vi-n-2024
+# CSDL---Quan ly sinh vien 2024
 Bước chân nền tảng của tôi
